@@ -1,6 +1,7 @@
 <div align="center"> <details>
     <summary>paws at u</summary>
-     I prefer the names rafa or fawn bc they make mi feel safer T.T
+   She / Him - Paw / Pawself :3 (pref) 
+    I prefer the names rafa or fawn bc they make mi feel safer T.T
 less responsive , I respond mostly w emotes !! I like cuds ^w^ mostly offt watching cartoons , i lof wolves , awoo , IRL fawn / wolf
 </details>
 </div> <div align="center"> <img src="https://github.com/MeowingButtons/MeowingButtons/blob/main/meeeeee.png?raw=true" alt="Button Description" width="15%"> </div> <div align="center"> <details>
